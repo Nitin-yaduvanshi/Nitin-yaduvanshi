@@ -1,2 +1,2 @@
 ﻿# Nitin-yaduvanshi
-![Nitin-yaduvanshi](https://photos.fife.usercontent.google.com/pw/AP1GczPn7OfgXrkrO9IQlpulJf5bbwOg6xPGmw6Yew2puz3jAI04r0LryQbp=w728-h970-s-no-gm?authuser=0)
+![Nitin-yaduvanshi](https://photos.app.goo.gl/cHQf7WaXNwcwDZL58)
